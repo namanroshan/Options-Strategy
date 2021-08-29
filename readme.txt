@@ -1,0 +1,1 @@
+Option Selling Strategy combining both Fundamental and Technical Analysis
